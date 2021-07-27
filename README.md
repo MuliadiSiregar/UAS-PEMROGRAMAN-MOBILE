@@ -1,2 +1,2 @@
-UAs_Muliadi Siregar_Pemrograman Mobile
+UAS_Muliadi Siregar_Pemrograman Mobile
 
